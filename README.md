@@ -1,4 +1,4 @@
-# Pink-Hat-Scholarship
+
 
 Let all that you do be done in love
  <3 Corinthians 16:14 
